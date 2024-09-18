@@ -3,7 +3,7 @@
   <img width="900" height="250" src="https://64.media.tumblr.com/c30f6e3990227352ad641255220418f1/741b4bdb5ff96261-df/s2048x3072/3900275c3a992ebb94526dcd3bead0bac935214e.gifv">
   </p>
   <p align="center">
-  $\text{\color{white}{"}\color{brown}{Tell me how you feel about me}\color{white}{, do you like or like, like me!"}}$ <img width="20" height="20" src="https://i.ibb.co/FqC9zzs/IMG-6407.gif">
+  $\text{\color{white}{"}\color{brown}{Take me back to watching Pokemon with you }\color{white}{ ,  your house at three in the morning!"}}$ <img width="20" height="20" src="https://i.ibb.co/FqC9zzs/IMG-6407.gif">
   </p>
   <p align="center">
   <img width="400" height="450" src="https://64.media.tumblr.com/09509723e55f7f74dd2c61e9dffd6d83/0841a1a87c191547-39/s250x400/5488c58ff24ac9b5f0b7ed6ce130879f8294b8f5.gifv">
