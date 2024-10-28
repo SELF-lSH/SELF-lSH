@@ -23,7 +23,7 @@
 <img width="125" height="125" src="https://64.media.tumblr.com/d0bfa7148a6d64618e195ed9abadef5b/668d3fe8304f9427-ee/s100x200/2a7096b818c93ef962e8de4ae321e2c07749699f.gifv"><img width="30" height="30" src="https://xyz.crd.co/assets/images/gallery12/e60f9a14.gif?v=de6feabd"> $\text{\color{pink}{Warning   }\color{white}{! This user is a  }\color{Red}{ Fictionkin }\color{white}{ + }\color{Red}{ C'linker }\color{white}{ . }}$
 </p>
  <p align="center">
-  $\text{\color{White}{GALLERY!}}$
+  $\text{\color{White}{GALLERY!}}$ <img width="10" height="10" src="https://i.ibb.co/tJ4zpgm/IMG-5001.gif">
    <p align="center"> 
-  <img width="450" height="300" src="https://i.ibb.co/XF80tTN/Screenshot-2024-09-17-230118.png"> <img width="450" height="300" src="https://i.ibb.co/vDpSmHM/Screenshot-2024-09-17-191941.pngg">
+ <img width="450" height="300" src="https://i.ibb.co/vDpSmHM/Screenshot-2024-09-17-191941.pngg">
   
