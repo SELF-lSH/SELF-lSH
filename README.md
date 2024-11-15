@@ -25,5 +25,5 @@
  <p align="center">
   $\text{\color{White}{GALLERY!}}$ <img width="10" height="10" src="https://i.ibb.co/tJ4zpgm/IMG-5001.gif">
    <p align="center"> 
- <img width="450" height="300" src="https://i.ibb.co/vDpSmHM/Screenshot-2024-09-17-191941.pngg">
+ <img width="450" height="300" src="https://i.ibb.co/vDpSmHM/Screenshot-2024-09-17-191941.pngg"> <img width="450" height="300" src="https://i.ibb.co/68VNPNs/Screenshot-2024-11-15-163223.png">
   
