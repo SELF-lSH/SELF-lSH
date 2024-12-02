@@ -11,7 +11,7 @@
   <img width="480" height="400" src="https://64.media.tumblr.com/ad8e7830d35a1c8104cb184ffff434d7/1ed0677b1cd0e767-f1/s640x960/fa704a4cbb8ee325827d89222170a78348c8bbc4.pnj">
   </p>
    <p align="center">
-  $\text{\color{White}{ -  }\color{pink}{ August  }\color{white}{ OR }\color{pink}{ Auggie }\color{white}{ ` ` ✮}}$ <img width="20" height="20" src="https://64.media.tumblr.com/3bb22f67fbd015bc336195416591454f/0abf5b06cadac446-4a/s75x75_c1/499068b9ff3942b4d5b43b48642c3fcda1317e39.gifv">
+  $\text{\color{White}{ -  }\color{pink}{ August  }\color{white}{ OR }\color{pink}{ Augustine }\color{white}{ ` ` ✮}}$ <img width="20" height="20" src="https://64.media.tumblr.com/3bb22f67fbd015bc336195416591454f/0abf5b06cadac446-4a/s75x75_c1/499068b9ff3942b4d5b43b48642c3fcda1317e39.gifv">
        </p>
   <p align="center">
   <img width="60" height="40" src="https://camo.githubusercontent.com/51d5344ee60882e6b48a413f1e42bf512bdce398472d3e86f9e83a03f28fa6f1/68747470733a2f2f692e696d6775722e636f6d2f454f38724243392e706e67"> <img width="60" height="40" src="https://camo.githubusercontent.com/4c3e9af3d7cc81e23f336b37bc829fd450155ae21249be1a65579f7982dd5ae2/68747470733a2f2f64726976652e676f6f676c652e636f6d2f75633f69643d315f66646e68366445767462547a412d47514a54523373447370697938464d4e37"> <img width="60" height="40" src="https://64.media.tumblr.com/6c1c5d757955eaec24c15d97ad21f428/c3e805a8a16d5604-0b/s100x200/f1d2f9174227d1d5b1e247828cb859ebfdb76610.pnj"> <img width="60" height="40" src="https://y2k.neocities.org/stamps/tumblr_pbl4whs7Xl1wlxvjlo7_100.gif">
